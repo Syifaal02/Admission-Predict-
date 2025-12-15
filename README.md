@@ -1,4 +1,4 @@
-# Prediksi Peluang Keterima Pascasarjana 🎓
+# Prediksi Peluang Keterima Pascasarjana
 
 Anggota Kelompok:  
 - Siti Ayu (2406675) 
